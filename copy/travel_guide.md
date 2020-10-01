@@ -41,4 +41,4 @@ Taps/Brewster's/Dempsey's/Lagunitas
 
 ## Nearby attractions
 
-Beaches/Wineries/Breweries/Other forests & parks/Museums
+Beaches/Wineries/Breweries/Other forests & parks/Museums/ marin french cheese company /McEvoy ranch/shollenberger park/The petaluma library museum
